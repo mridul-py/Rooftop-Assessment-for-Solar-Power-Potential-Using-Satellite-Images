@@ -1,0 +1,1 @@
+# Rooftop-Assessment-for-Solar-Power-Potential-Using-Satellite-Images
